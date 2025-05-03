@@ -3,4 +3,4 @@
 
 # Видео по теме пазлов Сатоши:
 ### https://www.youtube.com/watch?v=DxNFu7VzNeI
-### https://www.youtube.com/watch?v=bhfXP_Uhbuo
+### https://www.youtube.com/watch?v=bhfXP_UHbuo
